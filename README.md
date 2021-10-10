@@ -10,6 +10,6 @@ My strengths are:
 - Photo and Video Editing
 - Social Media Managing
 - Digital Marketing 
-Hope we can get together some time. 
+
 
 
